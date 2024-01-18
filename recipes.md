@@ -127,3 +127,10 @@ Instructions:
 1. Throw everything into the blender
 2. Blend until smooth
 3. Drink it
+
+### Cooking tips from a ex chef
+
+1. Cooking onions for a longer time on low will add extra flavor to anything easier. 
+The longer you cook, the sweetner it will be
+2. Adding a bit of vinegar to the water when boiling eggs will help make it peel easier.
+3. When making steak, cut up 2 whole onions and place it on top of your seasoned steak so it is covered fully. Leave it for at least 4 hours or overnight. The enzymes in onion naturally break down the tissue and make any meat extra tender. You can also take the left over onion, and on low heat with lots of butter, pan fry it until it is jammy. Usually takes an hour but its pretty good even after 30 mins.  
