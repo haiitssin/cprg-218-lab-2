@@ -74,17 +74,18 @@ Instructions:
 
 Ingredients:
 - 2 boneless, skinless chicken breasts
+- Garlic and onion powder
 - Salt and pepper to taste
 - 2 tablespoons olive oil
 - 4 slices Swiss cheese
 - 4 hamburger buns
-- Lettuce
+- Lettuce (make it into coslaw)
 - Tomato
 - Mayonnaise
 
 Instructions:
 1. Preheat grill to medium-high heat.
-2. Season chicken breasts with salt and pepper and drizzle with olive oil.
+2. Season chicken breasts with seasonings and drizzle with olive oil.
 3. Grill chicken for 5-7 minutes per side or until cooked through.
 4. Top each chicken breast with a slice of Swiss cheese and let melt.
 5. Toast hamburger buns on the grill.
