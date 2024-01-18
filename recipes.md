@@ -114,3 +114,15 @@ Instructions:
 7. Drop tablespoon-sized balls of dough onto ungreased baking sheets.
 8. Bake for 8 to 10 minutes or until golden brown.
 9. Cool on wire racks.
+
+### College  Survial Student Smoothie
+
+1 cup frozen fruit mix (I use a mix of peach, mango, strawberry, pineapple)
+1/2 cup greek yogurt
+1 cup Coconut milk
+1 tbsp chia seeds
+1 cup collagen powder (if you can afford it, add more milk if needed)
+
+1. Throw everything into the blender
+2. Blend until smooth
+3. Drink it
