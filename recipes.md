@@ -96,7 +96,7 @@ Ingredients:
 - 2 1/4 cups all-purpose flour
 - 1 tsp baking soda
 - 1 tsp salt
-- 1 cup unsalted butter, softened
+- 1 cup unsalted butter, browned on the stove top and cooled
 - 3/4 cup white sugar
 - 3/4 cup brown sugar
 - 2 eggs
